@@ -1,4 +1,4 @@
-
+Exclusivo brainrot evolution script é o melhor brainrot evolution script com voar e invisibilidade. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
